@@ -9,7 +9,9 @@ Currently I Know from most to least:
 4. Css
 5. C++
 
-Feel free to reach me at: throw new NotImplementedException();
+Feel free to reach me at: 
+- https://discord.gg/xYaZkqY
+ - Or AnOddDoorKnight#0068
 
 <!---
 AnOddDoorKnight/AnOddDoorKnight is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
