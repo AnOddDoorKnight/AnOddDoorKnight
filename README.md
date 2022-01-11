@@ -11,7 +11,7 @@ Currently I Know from most to least:
 
 Feel free to reach me at: 
 - https://discord.gg/xYaZkqY
- - Or AnOddDoorKnight#0068
+  - AnOddDoorKnight#0068 via discord
 
 <!---
 AnOddDoorKnight/AnOddDoorKnight is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
