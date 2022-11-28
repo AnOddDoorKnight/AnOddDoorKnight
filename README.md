@@ -10,3 +10,4 @@ Feel free to reach me at:
 - gooeycuppy@live.com
 - https://twitter.com/anodddoorknight
 - https://www.reddit.com/user/AnOddScoutMainYT
+- +1 (541) 539-8875 *as text recommended*
