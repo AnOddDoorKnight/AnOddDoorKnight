@@ -8,3 +8,5 @@ Feel free to reach me at:
 - https://discord.gg/xYaZkqY as my discord server
   - AnOddDoorKnight#0068
 - gooeycuppy@live.com
+- https://twitter.com/anodddoorknight
+- https://www.reddit.com/user/AnOddScoutMainYT
